@@ -1,0 +1,26 @@
+{
+  "version": "1.0",
+  "id": "remi-park-and-the-garage-of-doom",
+  "title": "Remi Park and the Garage of Doom",
+  "author": "Bex Castillo",
+  "description": "Remi Park is eight years old and she builds things. Big things. Loud things. Things that occasionally set off the smoke detectors. The neighborhood kids call her workshop the Garage of Doom, which Remi considers a compliment. When the town announces its annual Cardboard Regatta, a race across Miller's Pond where boats must be built entirely from cardboard and duct tape, Remi sees her chance. Nobody has ever finished the race. Every single boat sinks. Remi is going to be the first to cross that finish line, or dissolve trying. A story about buoyancy, duct tape, triangles, spectacular failure, and the scientific fact that giving up is boring.",
+  "genres": ["STEM", "Humor", "Adventure"],
+  "coverImage": null,
+  "forKids": true,
+  "targetAge": "7-9",
+  "chapters": [
+    { "number": 1, "title": "Front Matter", "filename": "00-Front-Matter.md" },
+    { "number": 2, "title": "The Garage of Doom", "filename": "01-The-Garage-of-Doom.md" },
+    { "number": 3, "title": "The Regatta", "filename": "02-The-Regatta.md" },
+    { "number": 4, "title": "Research and Design", "filename": "03-Research-and-Design.md" },
+    { "number": 5, "title": "The Materials Run", "filename": "04-The-Materials-Run.md" },
+    { "number": 6, "title": "Building the Beast", "filename": "05-Building-the-Beast.md" },
+    { "number": 7, "title": "First Water Test", "filename": "06-First-Water-Test.md" },
+    { "number": 8, "title": "The Waterproofing Problem", "filename": "07-The-Waterproofing-Problem.md" },
+    { "number": 9, "title": "Second Water Test", "filename": "08-Second-Water-Test.md" },
+    { "number": 10, "title": "Weight vs. Strength", "filename": "09-Weight-vs-Strength.md" },
+    { "number": 11, "title": "The Secret Weapon", "filename": "10-The-Secret-Weapon.md" },
+    { "number": 12, "title": "Regatta Day", "filename": "11-Regatta-Day.md" },
+    { "number": 13, "title": "What's Next?", "filename": "12-Whats-Next.md" }
+  ]
+}
