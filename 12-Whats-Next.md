@@ -94,7 +94,7 @@ Mom turned around from the passenger seat. "I'm proud of you, Remi."
 
 "It was cardboard and tape."
 
-"It was cardboard and tape and two weeks of work and about fifty hours of your time and a whole lot of math and science and stubbornness. That's really something."
+"It was cardboard and tape and two weeks of work and about fifty hours of your time and a whole lot of math and science and stubbornness. That's really something." Mom paused. "Your halmeoni would have loved that boat."
 
 Remi looked out the window. The town was sliding by, houses and trees and mailboxes, all ordinary, all the same as they'd been two weeks ago when she'd first seen the flyer. But something felt different. She felt different.
 

@@ -16,7 +16,7 @@ Also taped.
 
 She went back to bed and finally fell asleep at some point, because the next thing she knew, Lucas was standing over her saying, "REMI IT'S RACE DAY WAKE UP WAKE UP WAKE UP."
 
-The Millbrook Cardboard Regatta started at 10 AM. At 8:30 AM, the Park family loaded the Narwhal Mark Three into Dad's car (again) and drove to Miller's Pond.
+The Millbrook Cardboard Regatta started at 10 AM. At 8:30 AM, the Park family loaded the Narwhal Mark Three into Dad's car (again) and drove to Miller's Pond. Mom had packed kimbap for the car, and Remi ate four pieces before they were halfway there.
 
 The pond was barely recognizable.
 

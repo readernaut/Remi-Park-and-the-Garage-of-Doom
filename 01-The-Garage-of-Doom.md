@@ -10,7 +10,7 @@ This was because of the noises. Buzzing, hammering, the occasional small bang, a
 
 Remi thought the Garage of Doom was an excellent name. She'd painted it over the door in red letters. Mom said "hmm."
 
-Inside, the Garage of Doom had a wooden workbench that Dad built for Remi's seventh birthday. It had pegboard walls with hooks for every tool, and every tool had its outline traced in black marker so you always knew where it went back. It had a shelf of bins labeled in Remi's handwriting: GEARS, SPRINGS, WIRE, MAGNETS, THINGS THAT SPIN, and the biggest bin of all, STUFF THAT MIGHT BE USEFUL SOMEDAY.
+Inside, the Garage of Doom had a wooden workbench that Dad built for Remi's seventh birthday. Mom was the one who taught Remi how to use the tools on it. She'd learned from her own mother, Halmeoni, who fixed everything in her house and thought calling a repairman was for people who gave up too easily. It had pegboard walls with hooks for every tool, and every tool had its outline traced in black marker so you always knew where it went back. It had a shelf of bins labeled in Remi's handwriting: GEARS, SPRINGS, WIRE, MAGNETS, THINGS THAT SPIN, and the biggest bin of all, STUFF THAT MIGHT BE USEFUL SOMEDAY.
 
 That last bin was overflowing. It always was.
 
@@ -50,7 +50,7 @@ Lucas was six. He read everything. Street signs. Shampoo bottles. The little pap
 
 "Is it, though?"
 
-Mom set scrambled eggs in front of both of them. "New rule. No projectiles before 9 AM."
+Mom set plates of garlic fried rice and eggs in front of both of them. "New rule. No projectiles before 9 AM."
 
 "What about after 9 AM?"
 

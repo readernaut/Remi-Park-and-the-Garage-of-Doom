@@ -66,6 +66,10 @@ Mr. Henderson had saved three refrigerator boxes, two washing-machine boxes, and
 
 "I was twenty-two and very confident. Two things that don't always go together."
 
+Dad laughed from the car. "You sound like my mother. Lola always said if something fell apart, you didn't build it right."
+
+"Smart woman," Mr. Henderson said.
+
 He also handed them a case of duct tape, brand-new, still in the plastic. "Bought this at Costco during the panic-buying days. Never used it. Take it."
 
 They loaded everything into Dad's car, which was now so full of cardboard that Dad had to peer through a tiny gap between boxes to see out the rearview mirror.

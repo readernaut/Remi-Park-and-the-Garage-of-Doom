@@ -160,6 +160,6 @@ And that meant there was only one problem to solve.
 
 They looked at each other and grinned. It was the grin of two people who had just watched their boat almost dissolve, and instead of being discouraged, were already thinking about how to make the next version better.
 
-"Can we get pancakes first?" Lucas asked.
+"Can we get hotteok first?" Lucas asked.
 
-"Yes," said Remi. "We can absolutely get pancakes first."
+"Yes," said Remi. "We can absolutely get hotteok first."
