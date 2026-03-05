@@ -2,13 +2,9 @@
 
 The awards ceremony happened right there on the dock, with everyone still dripping.
 
-Ron held up the microphone. "First place and the Golden Paddle, for being the first team in Millbrook Cardboard Regatta history to complete the course: Aanya and Priya Patel, in the Stiletto!"
+Ron held up the microphone. "First place and the Golden Paddle, for being the first team in Millbrook Cardboard Regatta history to complete the course: Remi Park, in the Narwhal!"
 
-Aanya and Priya held up the Golden Paddle together. It was an actual paddle, spray-painted gold, and it was the most beautiful ugly thing Remi had ever seen.
-
-"Second place, with a time of twelve minutes and forty-seven seconds: Remi Park, in the Narwhal!"
-
-Remi walked up and took her trophy, which was a small wooden plaque with a cardboard boat glued to it. She held it up and the crowd cheered, and she felt her face get hot and her smile get so wide it practically wrapped around her head.
+Remi walked up and took the Golden Paddle. It was an actual paddle, spray-painted gold, and it was the most beautiful ugly thing she'd ever seen. She held it up and the crowd cheered, and she felt her face get hot and her smile get so wide it practically wrapped around her head.
 
 "Best Sinking Award, for the most spectacular failure: the Kozlov twins, in the Red Menace!"
 
@@ -22,7 +18,7 @@ After the ceremony, something unexpected happened.
 
 The Patel sisters walked over to Remi.
 
-Aanya was carrying the Golden Paddle and Priya was carrying her tablet, and they both looked at Remi like they were studying a rare animal.
+Aanya's hair was still damp from the pond. Priya was carrying her tablet in a waterproof sleeve. They both looked at Remi like they were studying a rare animal.
 
 "Your boat," Aanya said. "Can we look at it?"
 
@@ -30,7 +26,7 @@ Aanya was carrying the Golden Paddle and Priya was carrying her tablet, and they
 
 They walked down to where the Narwhal was still floating at the dock, tied off with a piece of rope. Aanya crouched down and inspected the hull. She pressed the bottom with her palm. She looked at the seams. She peered at the triangular cutouts in the sides.
 
-"Your waterproofing is incredible," Aanya said. "We had our boat sealed with four layers of tape and we STILL got a small leak in the last two minutes. But your hull is completely dry."
+"Your waterproofing," Aanya said. "How. Our boat had four layers of tape and it still split open."
 
 "Waxed cardboard base, plus duct tape with overlap seams, plus latex paint on the seam lines," Remi said.
 
@@ -40,7 +36,7 @@ They walked down to where the Narwhal was still floating at the dock, tied off w
 
 Priya tapped something on her tablet. "Waxed produce boxes," she murmured. "Good data."
 
-Aanya stood up. "Your boat is slower than ours because it's wider and heavier. But it lasted longer in the water. If you made it narrower and took out more weight..."
+Aanya stood up. "Our boat was faster. Way faster. But yours is the one that's still floating." She looked at the Narwhal like she was doing math in her head. "If you could make it narrower and take out some weight..."
 
 "I'd have to sacrifice some stability," Remi said. "Narrower means tippier."
 
@@ -48,7 +44,7 @@ Aanya stood up. "Your boat is slower than ours because it's wider and heavier. B
 
 "A what?"
 
-"A skeg. Like a small fin on the bottom of the hull. It keeps the boat tracking straight AND adds stability, like a keel. We have one." Aanya pointed at the underside of the Stiletto, where a small ridge of folded cardboard ran along the center line of the hull.
+"A skeg. Like a small fin on the bottom of the hull. It keeps the boat tracking straight AND adds stability, like a keel. We had one on the Stiletto." Aanya paused. "Before it sank."
 
 Remi's brain did the thing. The spinning thing. The sorting-through-bins thing.
 
@@ -56,9 +52,9 @@ Remi's brain did the thing. The spinning thing. The sorting-through-bins thing.
 
 "Hey," Aanya said. She stuck out her hand. "Good race."
 
-Remi shook it. "Good race. Your boat is amazing."
+Remi shook it. "Good race. Your boat was incredible on the water."
 
-"Yours is too. Ours is just faster." Aanya grinned. "For now."
+"For ten minutes," Aanya said. Then she grinned, a little lopsided. "Yours was incredible for thirteen."
 
 Marcus came over next. He was still damp and his boat was gone, dissolved into a pile of soggy cardboard that he'd fished out of the pond and stuffed into a trash bag.
 
@@ -84,7 +80,7 @@ Marcus laughed. "Can I take a picture of your data?"
 
 "Of course there is."
 
-On the drive home, Remi sat in the back seat with the trophy in her lap and the Narwhal Mark Three strapped to the roof of Dad's car. Lucas was asleep next to her, still wearing his life vest (he'd refused to take it off). Noor was in the front seat, transcribing her race notes into a clean copy.
+On the drive home, Remi sat in the back seat with the Golden Paddle across her lap and the Narwhal Mark Three strapped to the roof of Dad's car. Lucas was asleep next to her, still wearing his life vest (he'd refused to take it off). Noor was in the front seat, transcribing her race notes into a clean copy.
 
 Mom turned around from the passenger seat. "I'm proud of you, Remi."
 
@@ -132,7 +128,7 @@ Noor grinned. "I'll text Priya. She gave me her number after the race."
 
 "Of course she did."
 
-When they got home, Remi carried the Narwhal Mark Three back into the Garage of Doom and set it on the sawhorses. She stood there for a minute, looking at it. This weird, wonderful, silver-and-gray cardboard boat that had started as a flyer on a workbench and ended as the second boat in Millbrook history to cross Miller's Pond.
+When they got home, Remi carried the Narwhal Mark Three back into the Garage of Doom and set it on the sawhorses. She stood there for a minute, looking at it. This weird, wonderful, silver-and-gray cardboard boat that had started as a flyer on a workbench and ended as the first boat in Millbrook history to cross Miller's Pond.
 
 She opened her Build Journal to a fresh page.
 

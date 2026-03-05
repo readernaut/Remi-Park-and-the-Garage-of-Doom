@@ -190,45 +190,59 @@ Remi paddled harder.
 
 Ten minutes. The shore was getting closer. She could see Noor, both fists clenched, stopwatch forgotten. She could see Lucas, jumping up and down. She could see Dad, not even pretending to be calm anymore.
 
-Eleven minutes. The Stiletto was thirty feet from the finish. Remi was sixty feet back. She wasn't going to catch them. They were too fast.
+Then Priya looked down.
 
-But she didn't need to catch them.
+Remi couldn't hear what Priya said, but she saw her tap Aanya on the shoulder. Aanya looked down too. And even from forty feet back, Remi saw them both freeze.
 
-She just needed to finish.
+The Stiletto was taking on water.
 
-Eleven minutes and thirty seconds. The Stiletto crossed the finish line.
+It happened fast. The narrow hull that made the Stiletto so fast also meant there was nowhere for the water to go except up. The seam along the right side had opened, just a few inches, but a few inches was enough. Water poured in, and the boat tipped slightly to the right, which pushed the leak lower, which let in more water.
 
-The crowd ERUPTED. Aanya and Priya raised their paddles over their heads. They'd done it. The first team to ever finish the Millbrook Cardboard Regatta.
+Aanya paddled harder. Priya bailed with her hands. They were eighty feet from the finish.
 
-Remi barely heard it. She was paddling. Stroke, stroke, stroke. The Narwhal was solid beneath her. The hull was dry. The ribs were holding. Everything she'd built, everything she'd tested and fixed and rebuilt and tested again, was working exactly like it was supposed to.
+Seventy feet.
 
-Twelve minutes.
+Sixty.
 
-Forty feet to go.
+The Stiletto was sinking lower with every stroke. Its beautiful narrow bow dipped under the surface, scooped water, came back up heavier. The cardboard was darkening, going soft.
+
+Fifty feet from the finish line, the Stiletto folded.
+
+Not spectacularly, like the Red Menace. Quietly. The right side crumpled inward, the hull bent, and the whole boat settled into the water with a long, slow sigh. Aanya and Priya slid into the pond still holding their paddles.
+
+The crowd went silent. Then a groan. Then applause, the kind you give someone who almost made it.
+
+Aanya treaded water for a second, looking at the dock fifty feet away. She looked like she was thinking about swimming for it. Then she let out a breath, tucked her paddle under her arm, and started swimming to shore.
+
+One boat left. The Narwhal.
+
+Remi paddled.
+
+Her arms were on fire. Her shoulders screamed. Sweat dripped off her nose. But the hull beneath her was dry. Completely, stubbornly, beautifully dry.
+
+Eleven minutes. Forty feet to go.
 
 Stroke. Stroke. Stroke.
 
 Thirty feet.
 
-Her arms were on fire. Her shoulders screamed. Sweat dripped off her nose.
+She could see the dock. She could see the finish line marker. She could see Noor, who was now screaming something Remi couldn't hear over the crowd.
 
 Twenty feet.
 
-She could see the dock. She could see the finish line marker. She could see Noor, who was now screaming something Remi couldn't hear over the crowd.
-
-Ten feet.
+Ten.
 
 Five.
 
 The bow of the Narwhal bumped the dock.
 
-"TWELVE MINUTES AND FORTY-SEVEN SECONDS!" Ron's megaphone crackled. "WE HAVE A SECOND FINISHER! BOAT NUMBER FOUR, THE NARWHAL!"
+"TWELVE MINUTES AND FORTY-SEVEN SECONDS!" Ron's megaphone crackled. "WE HAVE A FINISHER! THE FIRST FINISHER IN THE HISTORY OF THE MILLBROOK CARDBOARD REGATTA! BOAT NUMBER FOUR, THE NARWHAL!"
 
-The crowd exploded again. Remi sat in her boat, paddle across her lap, breathing so hard she thought her lungs might quit, and felt something huge and warm bloom in her chest.
+The crowd exploded. Remi sat in her boat, paddle across her lap, breathing so hard she thought her lungs might quit, and felt something huge and warm bloom in her chest.
 
 She'd finished.
 
-She hadn't won. The Patel sisters had been faster. But she'd FINISHED. She'd crossed Miller's Pond and come back. In a boat she'd built from cardboard and duct tape in a garage that smelled like paint and rubber bands.
+She wasn't the fastest. She hadn't been winning. But she'd FINISHED. She'd crossed Miller's Pond and come back, in a boat she'd built from cardboard and duct tape in a garage that smelled like paint and rubber bands. And she was the first person in five years of regattas to do it.
 
 Noor ran down the dock, skidded to a stop at the edge, and pulled Remi into a hug that almost tipped them both into the water.
 
