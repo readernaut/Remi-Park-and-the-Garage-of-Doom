@@ -80,6 +80,8 @@ Squares 3, 4, and 5 were all holding up well, but when Remi pressed them, she co
 
 Square 6 (waxed cardboard, no tape) was a surprise. It was barely damp. The wax coating was doing serious work.
 
+Squares 7 and 8 (waxed cardboard plus tape) were even better than 6. Almost completely dry. The wax was blocking most of the water, and the tape was catching whatever got past it.
+
 Square 9 (painted) was also good. The paint had sealed the surface, and very little water had gotten through.
 
 Squares 10, 11, and 12 were all nearly dry.
